@@ -1,0 +1,2 @@
+**HARD WORK AND PRAGMATISM FOR THE WIN!
+![pic](pic.png)
